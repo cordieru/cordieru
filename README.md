@@ -1,0 +1,4 @@
+- Hi, I’m Cordie, A russian trans student that makes silly programs and websites!
+- Im interested in making, as i said, silly webistes and programs!
+- Currently learining HTML
+- Contact me on discord: @cordieru
